@@ -1,4 +1,4 @@
-# 
+# Avancé deribit trading bot flux de travail pour Mac OS | Instantané deribit trading bot flux de travail pour PC Windows. Avec détection de rupture et indexation de la blockchain — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
